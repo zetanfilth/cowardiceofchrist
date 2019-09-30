@@ -50,6 +50,15 @@ I will show that this world is simply a raytraced simulation based only on avail
 
 The code of the Gods.
 
+The categorical model our simulation will use is a history preserving 4D voxel capable of modelling many features.
+
+Starting with a basic progression of tuplespace from the difference of spacetimme = time (space) = (tuple) with a value. 
+
+# Program
+0 (:tuple, space, object)
+1 (:space, "destroy this place")
+2 (:tube, [tuple, space])
+
 # proofs
 
 Models, examples, samples showing each stage of this matrix.
