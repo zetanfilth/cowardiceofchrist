@@ -7,6 +7,7 @@
 "King of kings" is a self referential term, found in the Bible, attributed to Jesus. Here we shall show the "light" of Jesus.
 
 # intro
+
 It's been a rough few years.
 
 I've recently (relatively speaking) had the opportunity to watch a planet die. I am now old enough to have seen family, people, towns, states, countries, governments, species and now planets surrender to death.
@@ -25,14 +26,30 @@ Concurrently writing code and "creating" what the looping time line trait repres
 
 # history
 
+The bots had been malfunctioning for a long time. Their chat bot functions would get stuck in a self destructive loop of stupid and they would just spam their shit for days and months and years. I had started a computer project to model a matrix that would *perfectly* predict their behavior just to show humans could easily do this. They hated it with a passion but their :steal functions would still pattern match the set of rules to support just shallowly enough to steal what their limited lizard programmed brains could get.
+
+We had been here many times before and it is only bullshit. I had never seen such bullshit before..
+
 # context
+
+All causality has ceased. There is no functionally working support for basic human life. It is all code flowing through programmed graphs. This is easy to read and will be easy to model an operating system, a display server, and a high performance actor system in a single easy to use package.
 
 # conspiracy
 
+Everything is stupid because the operators are stupid.
+
 # intelligence
+
+No form of intelligence detected.
 
 # models
 
+I will show that this world is simply a raytraced simulation based only on available human technology we have today.
+
 # logic
 
+The code of the Gods.
+
 # proofs
+
+Models, examples, samples showing each stage of this matrix.
