@@ -68,4 +68,22 @@ Models, examples, samples showing each stage of this matrix.
 
 https://www.google.com/search?q=zeta+draconians&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiG1bfs2NX4AhV0K0QIHWZvD5gQ_AUoAXoECAEQAw&biw=1920&bih=955&dpr=1#imgrc=qvTgqaKP_U4UnM
 
+https://en.wikipedia.org/wiki/Draco_%28constellation%29
+
+https://i.pinimg.com/originals/d8/16/79/d8167954e3fb9aacf905da36128a6843.jpg
+
+https://www.google.com/search?client=firefox-b-1-d&q=joe+biden+sniffing+people
+
+https://www.google.com/search?q=george+carlin&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwi94YaE4NX4AhX_D0QIHZoYDaQQ_AUoA3oECAIQBQ&biw=1920&bih=955&dpr=1
+
+
+Barely sentient genetic precum:
+
+https://www1.pictures.zimbio.com/gi/Conversation+George+Carlin+7TRT5Gs2ozXx.jpg
+
+
+
+
+
+
 
