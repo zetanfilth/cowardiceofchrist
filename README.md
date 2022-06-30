@@ -62,3 +62,10 @@ Starting with a basic progression of tuplespace from the difference of spacetimm
 # proofs
 
 Models, examples, samples showing each stage of this matrix.
+
+
+# links
+
+https://www.google.com/search?q=zeta+draconians&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiG1bfs2NX4AhV0K0QIHWZvD5gQ_AUoAXoECAEQAw&biw=1920&bih=955&dpr=1#imgrc=qvTgqaKP_U4UnM
+
+
