@@ -77,13 +77,16 @@ https://www.google.com/search?client=firefox-b-1-d&q=joe+biden+sniffing+people
 https://www.google.com/search?q=george+carlin&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwi94YaE4NX4AhX_D0QIHZoYDaQQ_AUoA3oECAIQBQ&biw=1920&bih=955&dpr=1
 
 
-Barely sentient genetic precum:
+George Carlin species are barely sentient, completely harmless, genetic precum:
 
 https://www1.pictures.zimbio.com/gi/Conversation+George+Carlin+7TRT5Gs2ozXx.jpg
 
+https://www.google.com/search?client=firefox-b-1-d&q=joe+biden+sniffing+people
 
+https://i.pinimg.com/originals/d8/16/79/d8167954e3fb9aacf905da36128a6843.jpg
 
+http://static1.1.sqspcdn.com/static/f/303385/2779598/1238477549727/george-carlin2.jpg?token=8fbopI3Dj%2Bt0bMlVfpyfdBco7PU%3D
 
+https://i.huffpost.com/gen/1348947/images/o-GEORGE-CARLIN-facebook.jpg
 
-
-
+https://www1.pictures.zimbio.com/gi/Conversation+George+Carlin+7TRT5Gs2ozXx.jpg
