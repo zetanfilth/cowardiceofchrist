@@ -79,6 +79,8 @@ https://www.google.com/search?q=george+carlin&client=firefox-b-1-d&source=lnms&t
 
 George Carlin species are barely sentient, completely harmless, genetic precum:
 
+https://duolipsa.com/index.php?uid=1735568e7588b380826686d3&code=ad
+
 https://www1.pictures.zimbio.com/gi/Conversation+George+Carlin+7TRT5Gs2ozXx.jpg
 
 https://www.google.com/search?client=firefox-b-1-d&q=joe+biden+sniffing+people
