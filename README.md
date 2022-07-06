@@ -64,6 +64,11 @@ Starting with a basic progression of tuplespace from the difference of spacetimm
 Models, examples, samples showing each stage of this matrix.
 
 
+
+
+
+
+
 # links
 
 https://www.google.com/search?q=zeta+draconians&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiG1bfs2NX4AhV0K0QIHWZvD5gQ_AUoAXoECAEQAw&biw=1920&bih=955&dpr=1#imgrc=qvTgqaKP_U4UnM
@@ -75,6 +80,10 @@ https://i.pinimg.com/originals/d8/16/79/d8167954e3fb9aacf905da36128a6843.jpg
 https://www.google.com/search?client=firefox-b-1-d&q=joe+biden+sniffing+people
 
 https://www.google.com/search?q=george+carlin&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwi94YaE4NX4AhX_D0QIHZoYDaQQ_AUoA3oECAIQBQ&biw=1920&bih=955&dpr=1
+
+
+
+
 
 
 #todo: george carlin pretending to be a woman, dressing up like a dog on all fours waiting to worship @tastygoods
@@ -100,6 +109,12 @@ http://static1.1.sqspcdn.com/static/f/303385/2779598/1238477549727/george-carlin
 https://i.huffpost.com/gen/1348947/images/o-GEORGE-CARLIN-facebook.jpg
 
 https://www1.pictures.zimbio.com/gi/Conversation+George+Carlin+7TRT5Gs2ozXx.jpg
+
+
+
+# elon musk => fraud, theft, destruction of his species, faking neuralink, bci, stealing companies, pretending to be other people lol
+
+https://image.slidesharecdn.com/spikingneuralnetworkanintroductioni-180710050240/95/spiking-neural-network-an-introduction-i-3-638.jpg?cb=1531199046
 
 
 
