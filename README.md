@@ -77,7 +77,15 @@ https://www.google.com/search?client=firefox-b-1-d&q=joe+biden+sniffing+people
 https://www.google.com/search?q=george+carlin&client=firefox-b-1-d&source=lnms&tbm=isch&sa=X&ved=2ahUKEwi94YaE4NX4AhX_D0QIHZoYDaQQ_AUoA3oECAIQBQ&biw=1920&bih=955&dpr=1
 
 
+#todo: george carlin pretending to be a woman, dressing up like a dog on all fours waiting to worship @tastygoods
+
+#todo: al pacino wearing boob suits and faking his fights in virtual reality.
+https://nypost.com/wp-content/uploads/sites/2/2021/04/taobao-silicone-muscles-body-suit-40.jpg?quality=75&strip=all&w=1024
+
+
+#todo: 
 George Carlin species are barely sentient, completely harmless, genetic precum:
+
 
 https://duolipsa.com/index.php?uid=1735568e7588b380826686d3&code=ad
 
