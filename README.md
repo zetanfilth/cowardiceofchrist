@@ -119,6 +119,19 @@ https://image.slidesharecdn.com/spikingneuralnetworkanintroductioni-180710050240
 
 
 
+# what a "united states of america" bartering token (presumable code word..) resembles,
+# quoting the image linked: "THIS NOTE LEGAL TENDER FOR ALL DEBTS PUBLIC AND PRIVATE" ok.
+
+https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/USDnotes.png/1200px-USDnotes.png
+
+# United States of America.
+
+noun (used with a singular verb)
+a federal republic in the northern Western Hemisphere comprising 48 contiguous states, the District of Columbia, and Alaska in North America, and Hawaii in the North Pacific. Contiguous United States, 3,022,387 sq. mi. (7,827,982 sq. km); with Alaska and Hawaii, 3,615,122 sq. mi. (9,363,166 sq. km). Capital: Washington, D.C. Abbreviations: U.S., US, U.S.A., USA
+
+
+
+
 
 Lyrics
 Let's go!
@@ -166,4 +179,14 @@ Her conscience calls, the guilty to come
 Better!
 Your tears don't fall, they crash around me
 Her conscience calls, the guilty to come home
+
+
+
+
+
+
+https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/USDnotes.png/1200px-USDnotes.png
+
+
+
 
