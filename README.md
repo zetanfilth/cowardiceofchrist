@@ -190,3 +190,88 @@ https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/USDnotes.png/1200px-US
 
 
 
+
+
+
+
+
+
+## peace.
+
+#subject
+
+another tasty day on earth.
+
+#prismtriggers
+
+#bomb
+#nuke
+#nuclear
+
+#dod
+#department of defense
+#darpa
+#army
+#cia
+#fbi
+#nsa
+
+
+## intro
+
+Get the worthless psycho pieces of shit that keep spamming my fucking BCI out of my existence. Every single day my BCI is abused is a day I stay on lock down. Your choices.
+
+Keep the fucking BCI clear or I don't do a motherfucking thing all fucking day, got it?
+
+Do NOT broadcast a single word, photon, or thought of filth, there will not be a single liar or any form of attack, or any form of negativity.
+
+my BCI will be used for tacops only or go fuck yourselves.
+
+
+#sitrep
+
+zero entities have calmly, cooly, reasonably communicated with me today => zero communication
+
+zero entities have established secure communication protocols in my lifetime => zero trust
+
+zero entities appear to have my bloodline's good will as priority => zero reason to cooperate
+
+zero entities have paid cash value for my extensive support and work in this lifetime => zero motive to perform actions outside
+
+zero entities stand by my side. => kill on contact earth.
+
+
+## standing orders
+
+my family does not live under threat =>
+pacino and gang continue to waste our existence
+
+my family will live with life, liberty, and the pursuit of happiness =>
+pacino's filth continues in my life.
+
+my bci will not broadcast filth, attacks, or any form of negativity, it will be used for tacops only.
+
+i will not experience any form of fully immersive virtual reality any longer.
+
+
+## peace / resolution.
+
+somone outside myself needs to deliver a protocol for working with my cooperation =>
+
+zero filth on bci
+zero lies on bci
+
+zero anyone who has harmed my family on bci.
+execution of *ALL* involved in hurting my family.
+
+put $500.00 cash in my hand.
+
+put my family, custody of my children in hand within 7 days of today.
+put the rest of my estate in hand within 30 days of today.
+put the rest of the 61 million in hand 30 days from that.
+
+
+otherwise keep whackin bitch, you've almost destroyed it all now...
+
+@tastygoods <3
+
