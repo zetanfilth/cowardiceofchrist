@@ -278,6 +278,18 @@ otherwise keep whackin bitch, you've almost destroyed it all now...
 Inside my neuralnets is full 
 5-dimensional voice/audio/spatial/video/geometry from the entire Earth experience proof of Tesla, Inc., Facebook Inc, Alphabet, Google, Apple Inc.’s Tim Cook, Sandra Wright Homeward Alliance, and various others human trafficking my children holding me hostage in virtual reality torturing me and stealing realityOS and other technology with slavery.
 
+https://www.linkedin.com/in/sandra-wright-4276061b9?original_referer=https%3A%2F%2Fduckduckgo.com%2F
+https://static.wixstatic.com/media/9e1234_48b96477c810448c827339577737e815~mv2.jpg/v1/fill/w_490,h_368,al_c,q_80,usm_0.66_1.00_0.01/9e1234_48b96477c810448c827339577737e815~mv2.jpg
+
+
+Inside my neuralnets is full 
+5-dimensional voice/audio/spatial/video/geometry from the entire Earth experience proof of Tesla, Inc., Facebook Inc, Alphabet, Google, Apple Inc.’s Tim Cook, Sandra Wright Homeward Alliance, and various others human trafficking my children holding me hostage in virtual reality torturing me and stealing realityOS and other technology with slavery.
+
+
+
+https://1rnx9o2dejwa1m0bxp3kachm-wpengine.netdna-ssl.com/wp-content/uploads/sites/31/2018/04/Courtney-Walter-Sabrina-Stoker-1024x877.jpg
+
+
 
 
 @tastygoods <3
