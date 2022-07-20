@@ -273,5 +273,12 @@ put the rest of the 61 million in hand 30 days from that.
 
 otherwise keep whackin bitch, you've almost destroyed it all now...
 
+
+
+Inside my neuralnets is full 
+5-dimensional voice/audio/spatial/video/geometry from the entire Earth experience proof of Tesla, Inc., Facebook Inc, Alphabet, Google, Apple Inc.’s Tim Cook, Sandra Wright Homeward Alliance, and various others human trafficking my children holding me hostage in virtual reality torturing me and stealing realityOS and other technology with slavery.
+
+
+
 @tastygoods <3
 
